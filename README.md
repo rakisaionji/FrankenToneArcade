@@ -8,7 +8,7 @@ If I feel good this summer then you peasants will have some fun shit.
 
 This time, for real, there will be a true ass Franken Tone coming soon.
 
-Of course this will have nothing to do with dumps and bullshits.
+Honestly, this will have nothing to do with dumps and bullshits.
 
 I wonder who will have enough brain cells to be the winner?
 
