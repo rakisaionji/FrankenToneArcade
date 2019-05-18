@@ -1,34 +1,11 @@
-# Project Diva Arcade Modpack (Reborn)
+# Project Diva Arcade Modpack (DEAD AGAIN)
 
-Okay, let's just forget about PkBowsy and his shit ass.
+**Fuck you ching chong leaking the fucking AFT lol. Okay I'm lose to you fuckers this time.**
 
-**This is good news to you peasants and bad news to hoarders.**
+**But that shit has no mdata lol. WTF are you leaking? Seriously?**
 
-If I feel good this summer then you peasants will have some fun shit.
+Okay, game is over now. But people still having no loader lol.
 
-**This time, for real, there will be a true ass Franken Tone coming soon.**
+Hint: It is available on my GitHub, hope you can look well and build your own.
 
-Honestly, this will have nothing to do with dumps and bullshits.
-
-**I wonder who will have enough brain cells to be the winner?**
-
-Of course not fucking shit ass low IQ bitch named PkBowsy.
-
-![Imgur](https://i.imgur.com/1zbhBPo.png)
-
-**It's time to disclose some information.**
-
-## System Requirements
-
-|         | Requirements                 |
-|---------|------------------------------|
-| OS      |                              |
-| CPU	    |                              |
-| Memory  |                              |
-| Storage	| 64 GB free hard disk space   |
-| GPU     |                              |
-| Sound   |                              |
-
-## Installation Guide
-
-There will be no guide for setup or installation. The package will be provided as-is and is promised to be working OOB with a certain emulator. There will be no support for Teknoparrot, really.
+Thanks Kuji Kita for all LEEKs and fucking selling me to the savage ching chong.
